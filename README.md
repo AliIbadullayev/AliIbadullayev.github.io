@@ -1,2 +1,2 @@
-# AliIbadullayev.github.io
+# Ali Ibadullayev
 Мой первый опубликованный сайт
